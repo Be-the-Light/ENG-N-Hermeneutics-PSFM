@@ -1,1 +1,1 @@
-# ENG-N-NewTestamentStudies
+# ENG-N-Hermeneutics
